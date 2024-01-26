@@ -21,7 +21,7 @@
 
 Have questions, suggestions, or just want to connect? Feel free to reach out to me:
 
-- [LinkedIn]([https://www.linkedin.com/in/your-linkedin-profile](https://www.linkedin.com/in/ikramul-hasan-rakib))
-- [Twitter]([https://twitter.com/your-twitter-handle](https://mobile.twitter.com/hasanrakib07))
+- [LinkedIn](https://www.linkedin.com/in/ikramul-hasan-rakib)
+- [Twitter](https://mobile.twitter.com/hasanrakib07)
 
 *Your sneaker journey awaits! **Happy Sneaking!** 👟✨*
